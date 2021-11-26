@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Sarnaa
+- 👀 I’m a writer and entrepreneur. 
+- 🌱 I’m currently reading law. 
+- 📫 Reach me by email at sarnaa@gmail.com
