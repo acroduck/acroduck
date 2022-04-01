@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Sarnaa
-- 👀 I’m a writer and entrepreneur. 
-- 🌱 I’m currently reading law. 
+- 👀 I’m a writer and entrepreneur--a storyteller. 
+- 🌱 I'm currently writing and reading. (Read: watching re-runs of Billions)
 - 📫 Reach me by email at sarnaa@gmail.com
