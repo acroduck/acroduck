@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Sarnaa
-- 👀 I’m a writer and entrepreneur--a storyteller. 
-- 🌱 I'm currently launching a EdHealth company. 
-- 📫 Reach me by email at sarnaa@gmail.com
+- 👀 I write. I explore. I tinker. I read. I make things and friends. 
+- 🌱 I help people launch nonprofits at http://launchright.pro.
